@@ -1,1 +1,1 @@
-# niko.lol.github.io
+# niko.lol
